@@ -62,4 +62,4 @@ Engaging in multiplayer modes can offer additional rewards and opportunities for
 
 Join Multiplayer Matches: Regularly participate in multiplayer games.
 Win Prizes: Aim to win matches to claim bonus dice and other rewards.
-Here are the latest Monopoly Go free dice links for today, along with the steps to redeem them to earn free dice and stickers in the game
+Here are the latest Monopoly Go free dice links for today, along with the steps to redeem them to earn free dice and stickers in the game claim now
